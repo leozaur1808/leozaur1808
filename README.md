@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-I'm a student in HSE ICEF and in this profile of mine some projects will appear soon! Stay tuned.
+I'm a student of HSE ICEF and in this profile of mine some projects will appear soon! Stay tuned.
